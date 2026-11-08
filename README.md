@@ -1,10 +1,2 @@
 ## sokenade
-testing stuffies
-![image alt](https://github.com/sokeswan/soken/blob/main/Untitled473_20261013002423.png)
-
-![image alt](https://github.com/sokeswan/soken/blob/main/slicers.gif) 
-$\color{#ffd77c}{\text{hi}}$
-
-$\color{#ff9d60}{\text{im soke}}$
-
-$\color{#ff6d91}{\text{yes}}$
+![image alt](https://github.com/sokeswan/soken/blob/main/Untitled317_20261108204047.png)
