@@ -17,8 +17,11 @@
 [toyhouse](https://toyhou.se/Sokeswan)
 
 [atabook](https://sokeswan.atabook.org/)
+
 [tiktok](https://tiktok.com/@sokeswan) 
+
 [strawpage](https://sokeswan.straw.page) 
+
 [kofi](https://ko-fi.com/sokeswan/commissions) 
 
 
@@ -31,6 +34,7 @@
 
 ---
 [ParrotX2s](https://github.com/ParrotX2s) 
+
 [Averythemayos](https://github.com/Averythemayos) 
 
 
