@@ -45,7 +45,6 @@ sokenade
 
 
 </details>
-![image alt](tumblr_e838673e2e26c48c768ef6b934ee78f7_8c609960_100.gif)
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
