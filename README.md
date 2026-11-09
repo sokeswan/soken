@@ -49,3 +49,5 @@ sokenade
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ![image alt](tumblr_cc39c18ed806a10466efecbc1008152d_4f092fa6_540.png) 
+
+README contributed with @ziic0rr ♡
