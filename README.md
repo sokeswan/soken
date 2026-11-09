@@ -42,4 +42,4 @@
 
 </details>
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-![image alt](slicers.gif) 
+![image alt](https://github.com/sokeswan/soken/blob/main/slicers.gif) 
