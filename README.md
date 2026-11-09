@@ -14,8 +14,24 @@
 
 
 ---
-Visit [Roblox](https://roblox.com "Play Roblox Online") to play!
+[toyhouse](https://toyhou.se/Sokeswan)
+[atabook](https://sokeswan.atabook.org/)
+[tiktok](https://tiktok.com/@sokeswan) 
+[strawpage](https://sokeswan.straw.page) 
+[kofi](https://ko-fi.com/sokeswan/commissions) 
 
 
 
 </details>
+
+<details>
+<summary>$\color{#ff6d91}{\textsf{check out my alt github!}}$</summary>
+
+
+---
+v
+
+
+
+</details>
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
