@@ -1,5 +1,6 @@
 sokenade
-![image alt](tumblr_a322f22d47776e75c146d33abcfecc8f_a0c1c80a_75.gif) 
+
+![image alt](tumblr_a322f22d47776e75c146d33abcfecc8f_a0c1c80a_75.gif) ![image alt](tumblr_d93bf1da295b7bbfeac0444e4e91d99e_fb9e0558_75.gif) ![image alt](tumblr_f06ae2b380403ebb733e4020902874b0_2ab2987a_75.gif) ![image alt](tumblr_3cd62e8e14979cb16a0f5bbc178cc992_87753048_75.gif) ![image alt](tumblr_b4f6bdbeb0433445eaace282b1b59f09_acb9cdbe_75.gif) 
 
 ![image alt](https://github.com/sokeswan/soken/blob/main/Untitled317_20261108204047.png)
 ⠀⠀𓏵     $\color{#ffd77c}{\textsf{sp/sx}}$  ~~       ~~  $\color{#ffd77c}{\textsf{5w4}}$
@@ -44,6 +45,8 @@ sokenade
 
 
 </details>
+![image alt](tumblr_e838673e2e26c48c768ef6b934ee78f7_8c609960_100.gif)
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 ![image alt](tumblr_cc39c18ed806a10466efecbc1008152d_4f092fa6_540.png) 
