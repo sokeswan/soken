@@ -8,6 +8,7 @@
 
 
 ![image alt](tumblr_804140c4f7370ee557f0cdcd3493a940_8f3d0ac1_100.gif) 
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 ![image alt](Untitled473_20261013002423.png) 
 <details>
@@ -42,4 +43,5 @@
 
 </details>
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-![image alt](https://github.com/sokeswan/soken/blob/main/slicers.gif) 
+
+![image alt](tumblr_cc39c18ed806a10466efecbc1008152d_4f092fa6_540.png) 
