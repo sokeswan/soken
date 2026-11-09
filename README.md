@@ -1,4 +1,4 @@
-sokenade
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?label=sokenade&color=ff6d91&labelColor=ffd77c)](https://hits.sh/github.com/Chemicalshot/)
 
 ![image alt](tumblr_a322f22d47776e75c146d33abcfecc8f_a0c1c80a_75.gif) ![image alt](tumblr_d93bf1da295b7bbfeac0444e4e91d99e_fb9e0558_75.gif) ![image alt](tumblr_f06ae2b380403ebb733e4020902874b0_2ab2987a_75.gif) ![image alt](tumblr_3cd62e8e14979cb16a0f5bbc178cc992_87753048_75.gif) ![image alt](tumblr_b4f6bdbeb0433445eaace282b1b59f09_acb9cdbe_75.gif) 
 
