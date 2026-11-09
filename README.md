@@ -1,4 +1,6 @@
-## sokenade
+sokenade
+![image alt](tumblr_a322f22d47776e75c146d33abcfecc8f_a0c1c80a_75.gif) 
+
 ![image alt](https://github.com/sokeswan/soken/blob/main/Untitled317_20261108204047.png)
 ⠀⠀𓏵     $\color{#ffd77c}{\textsf{sp/sx}}$  ~~       ~~  $\color{#ffd77c}{\textsf{5w4}}$
 
